@@ -1,4 +1,14 @@
-## Hi there 👋
+## Hi, I'm Siv!
+
+Mentor @ Science Club for Girls 
+
+Incoming President for BHCC STEM Club 
+
+Sophomore @ Bunker Hill CC 
+
+## Connect with me! 
+
+LinkedIn: Sivchou Reth 
 
 <!--
 **Sivchou/Sivchou** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
