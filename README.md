@@ -2,9 +2,7 @@
 
 Mentor @ Science Club for Girls 
 
-Incoming President for BHCC STEM Club 
-
-Sophomore @ Bunker Hill CC 
+Electrical Engineer Transfer @ Bunker Hill CC 
 
 ## Connect with me! 
 
